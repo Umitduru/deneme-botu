@@ -1,0 +1,2 @@
+# deneme-botu
+1946647428:AAGXROfDfhgaf85z9pyfjA5Eud0ScxZGSkM
